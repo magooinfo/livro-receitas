@@ -1,18 +1,26 @@
 # Strogonoff de Frango :chicken:
 
-**Negrito**
+###  Ingredientes
 
-_itálico_
+- 1 djklsjdkjdklsjlksjç
+- 2 dajskjflak
+- 3 djalkjklfajdskjfkla
+- 4 sdkajfkjakjfjadklsjfkjdaks
+- 5 jjaskjkjklsjflksdjkfjksaj
+- 6 jdkajsdflkfjfkajf
+- 7 sjfkldjjklfdsjda
+- 8 adjkfjlkasjlfdj
+- 9 djfjaksjfkldja
 
-## Ingredientes
+### Modo de Preparo
 
-- 1 skjfkdjakfdjklasj
-- 1 lklçklklklçkl
-- 1 djafdkjdfkajk dkjd
-- 1 skdjfklasjlkfdj
-- 1ksjsalkjflksdja
+1. sdkljfkaj as jfalfjkasjfkla asdj lkfjalkjdf
+2. jdslk sjfdlkajkkfkasjfk a sadkjfdkljlfjfads
+3. sjdfkljasdkjfakljfkajlkfjakljfk s
 
-## Modo de preparo
 
-_ Jjdlkjklsajfk sdjlfadsjkfdj aadkjlkasjfkjaklfkldsjfklas lkjsdklasfdlkj_
+
+
+
+
 
